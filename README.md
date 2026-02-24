@@ -79,4 +79,4 @@ We may update this Privacy Policy from time to time. Updates will be posted at t
 ---
 
 ## 10) Contact
-For privacy questions or requests: **jemajoros@gmail.com**
+For privacy questions or requests: **stemdoc305@gmail.com**
